@@ -1,4 +1,5 @@
 Grundsätze:
+Optimismus ist Trumpf.
 
 Ideale kann man anstreben, muss aber akzeptieren, dass man diese im allgemeinen nicht erreichen kann.
 
