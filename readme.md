@@ -1,3 +1,5 @@
+Grundsätze:
+
 Ideale kann man anstreben, muss aber akzeptieren, dass man diese im allgemeinen nicht erreichen kann.
 
 Die Quelle des persönlichen Glück ist zu bewerten unter den gesichtspunkten der Nachhaltigkeit und unversehrtheit aller beteiligten.
@@ -13,3 +15,12 @@ Fokus auf menschliche Werte, Würde und das Wohlergehen aller Menschen. (Humanis
 Die Beurteilung von Ideen und Handlungen nach ihren praktischen Konsequenzen. (Pragmatismus)
 
 Die Betrachtung von Systemen als Ganzes und die Berücksichtigung der Wechselwirkungen zwischen den Teilen. (Holismus)
+
+Ableitungen:
+
+Ideale können als Richtlinien dienen, während die stoische Akzeptanz hilft, Frustration zu vermeiden, wenn Perfektion nicht erreicht wird.
+
+Große Fragen:
+
+Existiert Gott?
+Ja, denn er, bzw die Vorstellung eines Gottes in den Köpfen der Gläubigen, hat Einfluss auf die Welt. Also exitiert er, wenn auch gesichert nur als Vorstellung existiert.
