@@ -11,3 +11,5 @@ Die Anerkennung der persönlichen Verantwortung für das eigene Leben und die ei
 Fokus auf menschliche Werte, Würde und das Wohlergehen aller Menschen. (Humanismus)
 
 Die Beurteilung von Ideen und Handlungen nach ihren praktischen Konsequenzen. (Pragmatismus)
+
+Die Betrachtung von Systemen als Ganzes und die Berücksichtigung der Wechselwirkungen zwischen den Teilen. (Holismus)
