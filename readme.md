@@ -24,3 +24,6 @@ Große Fragen:
 
 Existiert Gott?
 Ja, denn er, bzw die Vorstellung eines Gottes in den Köpfen der Gläubigen, hat Einfluss auf die Welt. Also exitiert er, wenn auch gesichert nur als Vorstellung existiert.
+
+Sinn des Lebens?
+Was ist Bewssutsein? Und im Kontext von KI?
