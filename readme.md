@@ -27,3 +27,4 @@ Ja, denn er, bzw die Vorstellung eines Gottes in den Köpfen der Gläubigen, hat
 
 Sinn des Lebens?
 Was ist Bewssutsein? Und im Kontext von KI?
+Wie mit anderen Meinungen umgehen, die der eigenen entgegen gehen?
